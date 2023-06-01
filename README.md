@@ -1,0 +1,1 @@
+# rutinaam000r0sa
